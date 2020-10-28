@@ -1,2 +1,2 @@
-# TSCompany
-TS Company
+# TS-GROUP
+ graphic design
